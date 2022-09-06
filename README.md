@@ -1,4 +1,4 @@
-# 2022/2023 presentations
+# 2022/2023 
 
 <p><strong>Madeira 7/9 de setembro 2022 - Congresso de Educação Artística</strong><p>
 
