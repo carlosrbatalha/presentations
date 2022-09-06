@@ -1,6 +1,6 @@
 # 2022/2023 presentations
 
-Madeira 7/9 de setembro 2022 - Congresso de Educação Artística
+<p><strong>Madeira 7/9 de setembro 2022 - Congresso de Educação Artística</strong><p>
 
 Do presencial para o online: um modelo de e-Learning para a formação contínua de professores
 
